@@ -1,1 +1,0 @@
-# theakaruni.github.io
